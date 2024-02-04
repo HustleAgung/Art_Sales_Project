@@ -1,4 +1,4 @@
-# Exploring the Art of Painting Market: Insights into Styles, Countries, and Top Artists
+# Exploring the Art of Painting Market: Insights into Styles, Subjects, and Top Artists
  
 ## Introduction
 Painting is a form of visual art that has the unique ability to capture beauty, expression, and meaning in every brush stroke. Every painting is a unique work of art that invites us to understand the world through the artist's perspective, combining color, texture, and composition. Painting is a timeless medium because it can celebrate and inspire life with eternal beauty. So of course, many people are reluctant to own it by buying it from the manufacturer.
